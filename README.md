@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **hvsreal.223@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/3WEFXrF](https://bit.ly/3WEFXrF)
+- 📄 Know about my experiences [https://bit.ly/3jddnj7](https://bit.ly/3jddnj7)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
